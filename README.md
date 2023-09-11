@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **rohitjana.1999@gmail.com**
 
-- 📄 Know about my experiences [ROHIT_JANA_Resume.pdf](ROHIT_JANA_Resume.pdf)
+- 📄 Know about my experiences **https://pdf.ac/1Ycrad**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
